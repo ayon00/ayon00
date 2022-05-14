@@ -2,7 +2,7 @@
 - 👀I want to study in the field
 - 🌱 plz help me..
 - 💞️ im zero knowledge..
-- 📫 How to reach me ..
+- 📫 Plzzz help me...
 
 <!---
 ayon00/ayon00 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
